@@ -1,6 +1,4 @@
-### Hi there 👋
-
-I am a chemical engineering student at the University of Waterloo.
+Current chemical engineering student at the University of Waterloo.
 Pronouns: She/Her
 How to reach me: msdias@uwaterloo.ca
 
