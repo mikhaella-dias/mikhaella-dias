@@ -1,7 +1,7 @@
 Current chemical engineering student at the University of Waterloo.
-<!--
+
 Pronouns: She/Her
-<!--
+
 How to reach me: msdias@uwaterloo.ca
 
 <!--
